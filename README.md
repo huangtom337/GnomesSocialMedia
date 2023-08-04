@@ -1,3 +1,3 @@
 # GnomesSocialMedia
 
-Will update link soon
+http://tom-huang.com
